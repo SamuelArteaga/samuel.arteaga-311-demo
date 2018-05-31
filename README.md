@@ -1,5 +1,4 @@
-> Samuel Arteaga
->
+> Samuel Arteaga\s\s
 > samuel.arteaga@csu.fullerton.edu
 > 
 > Karl Marx is my favorite Marx; The concept of communism, an ideology pioneered by Karl Marx,
