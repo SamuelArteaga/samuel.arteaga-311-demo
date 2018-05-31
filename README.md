@@ -1,4 +1,5 @@
 > Samuel Arteaga
+
 > samuel.arteaga@csu.fullerton.edu
 > 
 > Karl Marx is my favorite Marx. The concept of communism is a way for everyone to
